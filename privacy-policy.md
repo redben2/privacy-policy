@@ -12,7 +12,4 @@ Your privacy is important to us, and since we do not collect any data, your info
 ## Policy Updates
 This policy may change. Any updates will be posted here.
 
-## Contact
-Questions? Email us at: trosmana@gmail.com
-
 Effective: March 27, 2025
